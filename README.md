@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي خبيني في العيون
+> دعني أغرق في سحر الجنون
+> شوقي إليك كنار لا تهدأ
+> خذني بعيدا حيث نكون
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
